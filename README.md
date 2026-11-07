@@ -2,7 +2,7 @@
 - 👀 I’m interested in vulnerablity
 - 🌱 I’m currently learning code
 - 💞️ I’m looking to collaborate on ghostlock
-- 📫 How to reach me r36217212792163.com
+- 📫 How to reach me r3621721279@163.com
 
 
 https://github.com/user-attachments/assets/b964da0a-894e-418a-975b-2e4d8c7deeab
